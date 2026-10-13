@@ -1,4 +1,4 @@
-## Hi there 👋
+## HELLO THIS IS A WIP...... if you know how to make a cute github pease tell me bro....
 
 <!--
 **M3koS4lt/M3koS4lt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
